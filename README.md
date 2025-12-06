@@ -8,7 +8,10 @@ This space is my digital lab for study & passion projects. Welcome! 🧪💻
 
 Quick facts:
 
-🎮 Gamer at heart, aiming to turn passion into profession.
+🎮 Gamer at heart, aiming to turn passion into profession
+
 ⚔️ DMC/Vergil fanatic. Motivation level: SSS 😏
-💧 Team Hydration. Tea/Coffee? Never heard of them. 💦
+
+💧 Team Hydration. Tea/Coffee? Never heard of them 💦
+
 📺 Anime convert. From skeptic to fan — thanks, friends! 🙏 (I owe you one 😄)

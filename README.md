@@ -1,16 +1,13 @@
-## Hi there 👋
+## Hey! ✨
 
-<!--
-**nastyok/nastyok** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm Nastyok — a future AI/ML Engineer from Russia, building the future one algorithm at a time 🤖🇷🇺💡
 
-Here are some ideas to get you started:
+My superpower? Transforming "what if?" into "here it is!" 🚀
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+This space is my digital lab for study & passion projects. Welcome! 🧪💻
+
+Quick facts:
+🎮 Gamer at heart, aiming to turn passion into profession.
+⚔️ DMC/Vergil fanatic. Motivation level: SSS 😏
+💧 Team Hydration. Tea/Coffee? Never heard of them. 💦
+📺 Anime convert. From skeptic to fan — thanks, friends! 🙏 (I owe you one 😄)
